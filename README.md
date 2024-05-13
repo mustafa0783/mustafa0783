@@ -4,9 +4,10 @@
 - 💞️ I’m looking to collaborate on development projects.
 - 📫 How to reach me ...
     Email: khanmustafadawood555@gmail.com
+
     LinkedIn: https://www.linkedin.com/in/mustafa-dawood-81aa7b299/
   
-- 😄 Pronouns: he/him, she/her,they/them,
+- 😄 Pronouns: he/him, she/her, they/them,
 - ⚡ Fun fact: Cricket, Football, Watching English Movies and Series 
 
 <!---
