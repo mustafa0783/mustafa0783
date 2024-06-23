@@ -7,7 +7,6 @@
 
     LinkedIn: https://www.linkedin.com/in/mustafa-dawood-81aa7b299/
   
-- 😄 Pronouns: he/him, she/her, they/them,
 - ⚡ Fun fact: Cricket, Football, Reading Books, Watching English Movies and Series 
 
 <!---
